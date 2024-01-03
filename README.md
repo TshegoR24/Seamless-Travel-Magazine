@@ -1,0 +1,1 @@
+Seamless Travel Online magazine.
